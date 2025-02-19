@@ -9,3 +9,9 @@ Key focus areas:
  ✅ Optimized for user engagement & conversions
 Grateful to CodSoft for this learning experience! 
 🙌 Check out my work here: https://www.figma.com/design/1yzNtTT7BDZTIkmqrgmIH9/Untitled?node-id=0-1&t=NMEG4fq6hxUKEqAu-1 
+
+
+
+
+
+For Video reference: https://www.linkedin.com/posts/safiya-naz-b49246255_codsoft-uiux-figma-activity-7297743403465723904-Iy6C?utm_source=share&utm_medium=member_android&rcm=ACoAAD7fOzYBPRNqWFIn7Uyzl3nuTYhpoSUNGHM 
