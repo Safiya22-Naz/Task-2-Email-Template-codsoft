@@ -8,4 +8,4 @@ Key focus areas:
  ✅ Brand-consistent typography & colors
  ✅ Optimized for user engagement & conversions
 Grateful to CodSoft for this learning experience! 
-🙌 Check out my work here: 🔗 [https://lnkd.in/gDTQmRvd]
+🙌 Check out my work here: https://www.figma.com/design/1yzNtTT7BDZTIkmqrgmIH9/Untitled?node-id=0-1&t=NMEG4fq6hxUKEqAu-1 
